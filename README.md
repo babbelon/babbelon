@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @babbelon
-- 👀 I’m interested in babbling
-- 🌱 I’m currently learning how to babble more
+- 👀 I’m interested in babbling more
+- 🌱 I’m currently learning how to keep calm and babble on
 - 💞️ I’m looking to collaborate with prune
 - 📫 How to reach me: babble @ me
 
